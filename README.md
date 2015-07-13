@@ -1,0 +1,2 @@
+# owneri
+teodorjovan
